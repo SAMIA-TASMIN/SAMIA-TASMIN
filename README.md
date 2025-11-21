@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new thing
 - 🌱 I’m currently learning project with html,css,js
 - 💞️ I’m looking to collaborate on ...js mini project
-- 📫 How to reach me:novaira489@gmail.com
+- 📫 How to reach me:novaira489@gmail.com/samiatasminnova@gmail.com
 - 😄 Pronouns:She/her
 - ⚡ Fun fact: ...
 
